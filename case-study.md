@@ -2,6 +2,10 @@
 
 
 ## Introduction 
+
+![Alt.text](visual-selfie.PNG)
+
+
 ### *Here is an example of my case study. The work is a personal flag that I created during my second semester at my graphic design school. The task was to create a unique selfie that would describe our personality so I created my own personal flag that’s hanging on a flag pole in the skies*.
 
 ## The Process
