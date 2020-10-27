@@ -22,4 +22,4 @@
 
 * The flag is hanged on a flag pole that is floating in the sky, because I tend to have my mind focused away from reality. The selfie can be used as a standalone flag as well, that could be hanged up in any place of your decision let it be a graphic studio, bedroom, or your backyard or used online for social media as well. 
 
-* It is a personal abstract business card, that can be used in any way you want. Over all, I would say, that it was a pretty successful project and it can also be seen as a printed version of a poster in the school studio. 
+* It is a personal abstract business card, that can be used in any way you want. Over all, I would say, that it was a pretty successful project and it can also be seen as a printed version of a poster in the school studio in Prague.
