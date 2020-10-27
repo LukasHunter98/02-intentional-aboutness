@@ -1,1 +1,1 @@
-# 02Intentional-Aboutness
+# 02-intentional-aboutness
