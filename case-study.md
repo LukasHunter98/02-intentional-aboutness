@@ -15,6 +15,8 @@
 
 * I sat down and sketched a few ideas in my notebook. I eventually chose this design because it looked simplistic and universal in terms of usage so I turned it into a personal t-shirt format as well that could be worn as a visual selfie in public because there is no better canvass for presenting yourself in public than your own personal t-shirt.
 
+![](img/tshirt-small.PNG) 
+
 ## Symbolism
 
 * The colours yellow and black represent optimism and pessimism. In the middle of the flag is a green eye representing the colours of my eyes. The two triangles represent the different views I take to seeing graphic design. 
