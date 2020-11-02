@@ -6,7 +6,7 @@
 ---
 
 * My name is Lukas Hunter. I grew up in Prague to a Czech mother and a Canadian father. 
-I tend to be pretty introverted but give me a beer and I will turn into a wild beast, that likes to dance. 
-For my hobbies, I play tennis and go for walks in the nature. What inspires is symbolism in vexillology. 
+I tend to be pretty reversed but give me a beer and I will turn into a wild beast, that likes to dance. 
+I play tennis and go for walks in the nature. What inspires is symbolism in vexillology. 
 
-* I’m interested in vexillology, which stands for the study of flags, becasue it’s not something everybody is interested in and that’s what makes it so unique for me. Deriving from my love of vexillology, I like to find simple minimilist ways for creating visual graphics. 
+* I’m interested in vexillology, because it’s not something everybody is interested in and that’s what makes it so unique for me. Through my study of flag design, I like to find simple minimalist ways for creating visual graphics. 
