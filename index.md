@@ -1,5 +1,9 @@
 ## Lukas Hunter 
 
-![About me]
+*hello and welcome to my page*
+
+![about me](about.md) 
+
+![Case Study](case-study.md)
 
 
