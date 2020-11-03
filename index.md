@@ -4,6 +4,6 @@
 
 ![about me](about.md) 
 
-![Case Study](case-study.md)
+![case Study](case-study.md)
 
 
